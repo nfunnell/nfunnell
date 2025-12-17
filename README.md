@@ -1,1 +1,1 @@
-### I'm gonna steal the Declaration of Independence
+### Applied marine ecologist @ UNC Chapel Hill's Institute of Marine Sciences
